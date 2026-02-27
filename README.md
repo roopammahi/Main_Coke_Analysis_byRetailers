@@ -10,8 +10,8 @@ Overall, sales performance is robust and seasonally driven, but the business fac
 - Leverage peak demand months with targeted promotions and high-margin product pushes.
 - Invest in growth regions (West & Northeast) for maximum ROI.
 - Address seasonal dips (April, October) with tactical campaigns to stabilize performance.
-- 
-- 📈 Strategic Takeaways
+
+📈 Strategic Takeaways
 - Capitalize on seasonal peaks with aggressive promotions.
 - Balance retailer portfolio to mitigate risk.
 - Invest in growth regions for maximum ROI.
